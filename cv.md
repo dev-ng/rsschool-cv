@@ -28,3 +28,4 @@ Master’s degree in Systems Engineering (May 1999) Francisk Skorina Gomel State
 Level B2
 ### German
 Level B2
+
